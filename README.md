@@ -1,1 +1,21 @@
-# eduarda1234  
+- Gosto de animes;
+- Amo ler;
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
